@@ -1,0 +1,1 @@
+Once upon a time, a young programmer discovered a mysterious computer that could predict the future.
